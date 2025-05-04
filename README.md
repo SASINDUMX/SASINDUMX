@@ -1,5 +1,5 @@
 # 💫 About Me:
-Im an it undergraduate<br><br>
+Im an it undergraduate inspired to learn and adapt new technologies <br><br>
 
 
 ## 🌐 Socials:
